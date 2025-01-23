@@ -1,1 +1,1 @@
-# LGBTQ-
+# LGBTQ++
